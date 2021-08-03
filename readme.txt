@@ -1,4 +1,4 @@
-Thanks for downloading Ss8vage Better Discord Theme!
+Thanks for downloading Ss8vage ClearVision Edited Better Discord Theme!
 
 Please make sure you have Discord and Better Discord installed.
 
